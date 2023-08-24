@@ -1,5 +1,3 @@
-Techniques for Collaborative Learning
-================================================
 
 Collaborative learning is an effective approach that promotes active engagement, knowledge sharing, and problem-solving among individuals in a group setting. By working together, learners can enhance their understanding, gain different perspectives, and develop vital skills such as communication, critical thinking, and teamwork. In this chapter, we will explore various techniques for collaborative learning that can be applied in educational and professional settings.
 

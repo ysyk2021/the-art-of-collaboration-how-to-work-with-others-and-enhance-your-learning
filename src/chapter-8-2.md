@@ -1,5 +1,3 @@
-Building Processes and Frameworks to Support Collaboration
-===================================================================
 
 Effective collaboration requires more than just good intentions. It requires the establishment of clear processes and frameworks that provide structure and support for teamwork. In this chapter, we will explore strategies for building processes and frameworks that foster collaboration and enhance learning.
 

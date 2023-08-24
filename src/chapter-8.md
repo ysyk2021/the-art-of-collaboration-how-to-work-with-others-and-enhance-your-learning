@@ -1,5 +1,3 @@
-Chapter 7: Sustaining Collaboration
-===================================
 
 Collaboration is a powerful tool for achieving shared goals and enhancing learning. However, sustaining collaboration over time can be challenging, as it requires ongoing motivation and effort from all parties involved. In this chapter, we will discuss strategies for sustaining collaboration, including maintaining motivation and momentum, building processes and frameworks to support collaboration, and strategies for continuous growth.
 

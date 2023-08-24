@@ -1,5 +1,3 @@
-Chapter 3: Collaborative Learning
-=================================
 
 Collaborative learning is a powerful tool for enhancing learning experiences. It allows learners to work together, share knowledge and skills, and explore new ideas in a supportive environment. In this chapter, we will explore techniques for collaborative learning, incorporating technology for collaborative learning, and balancing individual and group learning.
 

@@ -1,5 +1,3 @@
-Chapter 2: Building Collaborative Relationships
-===============================================
 
 Collaboration is all about working with others towards a common goal. To achieve this, it's important to build strong collaborative relationships. In this chapter, we will explore strategies for developing trust and rapport, communicating effectively, and resolving conflicts in collaborative settings.
 

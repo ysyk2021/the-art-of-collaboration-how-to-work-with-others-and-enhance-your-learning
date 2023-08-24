@@ -1,5 +1,3 @@
-Types of Collaboration
-===============================
 
 Collaboration comes in various forms and can take place in different contexts, each with its unique dynamics and objectives. In this chapter, we will explore some common types of collaboration that individuals and organizations engage in to work together effectively and enhance learning.
 
