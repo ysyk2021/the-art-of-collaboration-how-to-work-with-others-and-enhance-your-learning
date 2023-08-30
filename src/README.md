@@ -6,3 +6,7 @@ From identifying common goals and establishing trust to leveraging strengths and
 By embracing the power of collaboration and learning how to work effectively with others, you can enhance your personal and professional growth, achieve your goals, and make a positive impact on the world around you. With a commitment to building strong relationships and leveraging the strengths of diverse perspectives, you can unlock the full potential of collaborative efforts and achieve greater success than ever before.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
